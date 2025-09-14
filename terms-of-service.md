@@ -1,4 +1,4 @@
-# Terms of Service for Voicetrition
+# Terms of Service
 
 _Last updated: 14/09/2025_
 
